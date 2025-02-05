@@ -1,1 +1,1 @@
-We are team 16 for the 204-2025 MSBA Spring semester
+We are team 16 for the 2024-2025 MSBA Spring semester
